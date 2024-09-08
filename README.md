@@ -13,7 +13,6 @@
 
 - 📫 How to reach me *rachanaregmi22@gmail.com*
 
-- ⚡ Fun fact *I am not beautiful. I am black girl.*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
